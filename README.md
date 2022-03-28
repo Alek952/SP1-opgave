@@ -2,7 +2,7 @@
 
 1. Hvad for en opgave du har løst
 
-Jeg har løst opgaven fra "gruppe" omkring Moviedata   
+Jeg har løst opgaven fra "Rasmus Dalgaards gruppe" omkring Moviedata   
 
 2. Hvor langt du kom med den
 
